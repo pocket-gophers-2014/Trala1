@@ -1,4 +1,4 @@
 # TRALA [trah-lah]
 
-**noun**
+**noun** <br>
 nonsense syllables sung as a refrain, expressing gaiety.
